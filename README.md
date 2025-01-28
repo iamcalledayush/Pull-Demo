@@ -1,3 +1,3 @@
-# Enter your names here: Rachel 
+# Enter your names here: Rachel
 
 
